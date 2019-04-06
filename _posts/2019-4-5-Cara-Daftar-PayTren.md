@@ -51,7 +51,7 @@ Berikut langkah-langkah **Cara Daftar PayTren Terbaru**:
 6. Pilih Mentor Bisnis dengan Mengetik ID Mitra **TN0111923** a.n. **Tri Afrizal Hilmi**. Klik Lanjutkan
 7. Masukan PIN lalu klik Bayar
 
-Demikian penjelasan cara daftar PayTren terbaru, cara daftar paytren e money, cara daftar paytren tanpa sponsor, cara mendaftar paytren online, cara daftar paytren secara gratis untuk Anda yang berada di kota besar seperti Jakarta, Bandung, Indramayu, Semarang, Sidoarjo, Sukabumi, Nganjuk.
+Demikian penjelasan cara daftar PayTren terbaru, cara daftar paytren e money, cara daftar paytren tanpa sponsor, cara mendaftar paytren online, cara daftar paytren secara gratis untuk Anda yang berada di kota besar seperti Jakarta, Bandung, Indramayu, Semarang, Sidoarjo, Sukabumi, Nganjuk, dsb.
 
 Dengan memilih mentor yang tepat maka akan memudahkan Anda untuk mendapat bimbingan
 
