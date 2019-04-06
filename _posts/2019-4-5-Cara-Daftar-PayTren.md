@@ -9,7 +9,7 @@ Untuk bisa menjalankan bisnisnya tentu Anda harus mendaftar terlebih dulu kemudi
 
 Oleh karena itu silahkan baca sampai selesai informasi di halaman ini untuk Anda yang masih belum mengetahui bagaimana cara daftar PayTren baik Anda berada di kota besar seperti Jakarta, Bandung, Indramayu, Semarang, Sidoarjo, Sukabumi, Nganjuk dan sebagainya.
 
-![_config.yml]({{ site.baseurl }}/images/config.png)
+![keuntungan-paytren](https://adminpaytren.github.io/Cara-Daftar-PayTren-di-Android/images/benefit.jpg)
 
 Kabar updatenya, Cara daftar PayTren terbaru saat ini Anda bisa mendaftar secara online sendiri, berikut akan dijelaskan cara mendaftar PayTren online atau cara daftar PayTren e money.
 
